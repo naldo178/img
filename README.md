@@ -1,5 +1,4 @@
 
-![3](https://github.com/naldo178/img/assets/87744405/177ef2c2-d7db-4ef8-a28f-c4c56b21b5c7)
 
 
 
