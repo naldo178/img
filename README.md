@@ -1,7 +1,8 @@
 
 ![1](https://github.com/naldo178/img/assets/87744405/2b251ebe-eed5-4590-b356-0f79184c28ed)
 
-![2](https://github.com/naldo178/img/assets/87744405/3421f5b5-091c-4b1d-807d-214be34c18df)
+![2](https://github.com/naldo178/img/assets/87744405/6e77fea2-964b-460c-bd05-732d3da18ba9)
+
 
 
 
