@@ -1,5 +1,6 @@
 
-![1_resized](https://github.com/naldo178/img/assets/87744405/52b67bac-efbd-4645-bd35-e2693ae2d928)
+
+
 
 ![3](https://github.com/naldo178/img/assets/87744405/572e24ea-26e5-4640-9b0b-8ce0a619ed4b)
 
