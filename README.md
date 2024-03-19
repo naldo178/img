@@ -1,5 +1,4 @@
 
-![Untitled image (10)](https://github.com/naldo178/img/assets/87744405/f17fd69f-ec96-4823-a76a-2d5c94be9352)
 
 
 
