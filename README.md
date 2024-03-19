@@ -2,7 +2,8 @@
 
 
 
-![Untitled image (6)](https://github.com/naldo178/img/assets/87744405/ed1f7b38-fbf6-4dd9-8cbe-bb1e8761870c)
+![Untitled image (8)](https://github.com/naldo178/img/assets/87744405/96958103-e9de-4555-82c4-40efd276cd38)
+
 
 
 
