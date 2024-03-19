@@ -1,12 +1,11 @@
 
 
 
-https://github.com/naldo178/img/assets/87744405/0a689a8c-c712-442a-b217-e99469af74cf
 
 
 
 
-![Untitled image (4)](https://github.com/naldo178/img/assets/87744405/17fee0a1-1eba-4c30-9f5c-9cf3391780ec
+
 
 ![3](https://github.com/naldo178/img/assets/87744405/572e24ea-26e5-4640-9b0b-8ce0a619ed4b)
 
