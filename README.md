@@ -2,6 +2,7 @@
 
 ![3](https://github.com/naldo178/img/assets/87744405/572e24ea-26e5-4640-9b0b-8ce0a619ed4b)
 
+![_Inteligência artificial o que é e como funciona miniatura vídeo youtube roxo azul ](https://github.com/naldo178/img/assets/87744405/043f972d-cd24-4f40-a213-367d28219a81)
 
 
 
