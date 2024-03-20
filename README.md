@@ -1,5 +1,7 @@
 
-![Design sem nome](https://github.com/naldo178/img/assets/87744405/19c0a523-9b0b-456e-824b-3c1cf99f09f1)
+
+![liquida (1)](https://github.com/naldo178/img/assets/87744405/7fddd6ec-3832-4e23-a711-81cc30010c8d)
+
 
 ![3](https://github.com/naldo178/img/assets/87744405/572e24ea-26e5-4640-9b0b-8ce0a619ed4b)
 
