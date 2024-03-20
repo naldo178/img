@@ -1,7 +1,5 @@
 
-
-
-![Banner de outubro rosa delicado rosa e branco com corações e mensagem](https://github.com/naldo178/img/assets/87744405/6d5bad57-8e37-4436-916b-2feacfdc8d1d)
+![Design sem nome](https://github.com/naldo178/img/assets/87744405/19c0a523-9b0b-456e-824b-3c1cf99f09f1)
 
 ![3](https://github.com/naldo178/img/assets/87744405/572e24ea-26e5-4640-9b0b-8ce0a619ed4b)
 
