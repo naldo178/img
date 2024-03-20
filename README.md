@@ -1,7 +1,7 @@
 
 
 
-![Ban (2)](https://github.com/naldo178/img/assets/87744405/5bde5e2e-0467-4e75-8044-d10a1d028cfe)
+![Banner de outubro rosa delicado rosa e branco com corações e mensagem (2)](https://github.com/naldo178/img/assets/87744405/2fdb3ad1-02a4-4d81-a8db-e11e776cf12f)
 
 
 ![3](https://github.com/naldo178/img/assets/87744405/572e24ea-26e5-4640-9b0b-8ce0a619ed4b)
